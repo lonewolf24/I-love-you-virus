@@ -7,8 +7,9 @@ Step 4- Click on the file to execute it
 =========================================================
 Now answer in yes or no, if you want to exit hit Alt+F4.
 =========================================================
-Please Follow me on github-
-https://bit.ly/3gTO0xb
+Reach me at-
+Mastodon- https://mstdn.social/web/accounts/106330786755784956#
+Matrix- https://matrix.to/#/!YLzMRKKygGfUtQZgQy:matrix.org?via=matrix.org
 =========================================================
 Thanks for visiting my profile
-- Aarush Chaudhary
+- LASTSECRET987
